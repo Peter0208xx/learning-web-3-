@@ -7,3 +7,4 @@ mai hoc gi?
 lam sao ?
 ia học 
 làm sao ?
+đi về thui nào
