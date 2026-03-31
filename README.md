@@ -8,3 +8,7 @@ lam sao ?
 ia học 
 làm sao ?
 đi về thui nào
+ghnfgn db fdgb dfb d bdfb dfb dfb
+dv df vgdf dfg dfg df dfb dfgb g
+ gbfd bdf gbdfb dfgb dfgb dfb fdgb dfgbfd 
+ fd bfb fgnb fgn gfh ghn ghn gh
