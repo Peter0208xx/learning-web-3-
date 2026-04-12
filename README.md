@@ -4,12 +4,6 @@ muốn học dev web 3 cần những gì?
 học ở đâu? đi làm mạng nào về web 3 ?
 hnay hoc dc gi?
 mai hoc gi?
-lam sao ? sd vsdvds v
-day 
-day 1
-cretor acc github vs X accdv sdfv 
-viet tieu su, tinhs pointsdvf sdf v
-tạo acc x mới cho hnayds vsdsdv sdv 
 làm sao nhảy?
 nhảy làm gì?
 đam mê ko?
@@ -26,3 +20,13 @@ nhảy làm gì?
 học nhanh
 làm nhiều
 test nhiều  
+day 1
+cretor acc github vs X 
+viet tieu su, tinhs points
+tạo acc x mới cho hnay
+làm sao nhảy?
+nhảy làm gì?
+đam mê ko?
+học nhanh
+làm nhiều
+test nhiều
